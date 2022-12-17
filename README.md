@@ -3,7 +3,7 @@
 Our Mission is to create the next big team to rival the greatest. We plan to do this by fostering a community of sportsmanship,
 competency, and lighthearted glory. If you are looking for a community to join like this - read on!
 
-We and the Brothers salute you for your interest in joining our emerging and competetive ESports team.
+We and the Brothers salute you for your interest in joining our emerging and competitive ESports team.
 
 Here are the community guidelines we have set forth (for both prospective Brothers and fans alike).
 
