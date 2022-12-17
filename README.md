@@ -12,7 +12,7 @@ Here are the community guidelines we have set forth (for both prospective Brothe
 3. Enjoy your time with us. Its all about the game ;)
 
 
-**Lighthearted Glory is the motto - if you stick to that you wont be lead astray.**
+*Lighthearted Glory is the motto - if you stick to that you wont be lead astray.*
 
 
 Permanent Invite Link: https://discord.gg/f9SqT3uzwR
